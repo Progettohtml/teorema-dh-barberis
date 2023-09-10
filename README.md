@@ -1,1 +1,2 @@
-# teorema-dh-barberis
+# IL TEOREMA: Sottoproletariato e Pasolini
+   Pasolini e la classe sottoproletaria: una storia d'amore dai curiosi retroscena. <br><br> Dalle partite a pallone, agli sceneggiati cinematografici; dal biografico al poetico. <br><br> Teorema è una banca dati che raccoglie le diverse sfaccettature di questo intrallazzo e ambisce a semplificarne l'approfondimento e la ricerca attraverso l'opera pasoliniana.
